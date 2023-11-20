@@ -14,5 +14,5 @@ Tools
 
 * Fb Group Joiner :This Script Can Auto Add Members To Your Facebook Group Plz Use IT For Help people. ♥
 
-I'm not responsible for any wrong use of these codes. ♥
+I'm not responsible for any wrong use of these codes..♥
 
